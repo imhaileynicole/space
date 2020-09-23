@@ -1,3 +1,3 @@
 # space
-[Check The Weather Near You!](https://imhaileynicole.github.io/space.github.io/)
+[Register Here!](https://imhaileynicole.github.io/space.github.io/)
 
