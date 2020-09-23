@@ -1,3 +1,3 @@
 # space
-[Register Here!](https://imhaileynicole/space.github.io/)
+[Register Here!](https://https://github.com/imhaileynicole/space.github.io)
 
